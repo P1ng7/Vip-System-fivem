@@ -18,3 +18,14 @@ FEATURES || CARACTERÍSTICAS
 💾 Everything saved in the database !
 
 🆓 Open Source !
+
+
+
+DISCORD: 
+
+https://discord.gg/6qkJHMAE
+https://discord.gg/6qkJHMAE
+https://discord.gg/6qkJHMAE
+https://discord.gg/6qkJHMAE
+https://discord.gg/6qkJHMAE
+https://discord.gg/6qkJHMAE
